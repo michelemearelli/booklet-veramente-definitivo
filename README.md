@@ -1,2 +1,0 @@
-# booklet-veramente-definitivo
-ciaoooooo
